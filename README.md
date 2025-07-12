@@ -24,6 +24,7 @@
 - ☁️ Microsoft Azure Fundamentals (AZ-900)
 
 ## 📫 How to reach me
-- Email: muzamalhafiz422@gmail.com  
-- LinkedIn: [linkedin.com/in/hafiz-muzamal-420592160](https://www.linkedin.com/in/hafiz-muzamal-420592160/)  
-- Location: Doha, Qatar
+- ✉️ Email: muzamalhafiz422@gmail.com
+- 📞 +974 6631 4561
+- 🔗 LinkedIn: [linkedin.com/in/hafiz-muzamal-420592160](https://www.linkedin.com/in/hafiz-muzamal-420592160/)  
+- 📍 Location: Doha, Qatar
