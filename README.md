@@ -25,5 +25,5 @@
 
 ## 📫 How to reach me
 - Email: muzamalhafiz422@gmail.com  
-- LinkedIn: [linkedin.com/in/muzamalhafiz](https://www.linkedin.com/in/hafiz-muzamal-420592160/)  
+- LinkedIn: [linkedin.com/in/hafiz-muzamal-420592160](https://www.linkedin.com/in/hafiz-muzamal-420592160/)  
 - Location: Doha, Qatar
